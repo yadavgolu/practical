@@ -1,1 +1,1 @@
-# Authore brijesh yadav.
+# Author brijesh yadav.
